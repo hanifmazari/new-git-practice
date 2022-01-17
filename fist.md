@@ -8,6 +8,10 @@ slks j
    lc,.mzx
     cas'na
      as'as
+     xz'fka
+     fa
+     ja
+     sk
      na
       as'aas
       nas'asnas
