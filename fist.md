@@ -5,7 +5,13 @@ slks j
    
    asn
    kkl
-   l
+   lc,.mzx
+    cas'na
+     as'as
+     na
+      as'aas
+      nas'asnas
+      dnas
    .;.
    km,
    l
