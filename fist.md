@@ -6,4 +6,9 @@ slks j
    asn
    kkl
    l
+   .;.
+   km,
+   l
+   mlmmlmmkk
+   m
    
